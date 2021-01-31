@@ -1,1 +1,0 @@
-# mathminimum.github.io
